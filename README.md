@@ -36,10 +36,9 @@
                         <strong>gửi chị pé</strong>
                         <br>     ----------------------------------------------------
                                 Trước khi rời khỏi nhà chị pé nhớ
-                                kt đồ đạc nhóa!!!
-                                và mang thêm sự tự tin của mình nữa nhe<br></br>
+                                kt đồ đạc nhóa!! chị pé thi tốt nhee
                             
-                                -------------------thi tốt nha-----------------------
+                                -------------------may mắn-----------------------
                         </p>
                     </div>
                 </div>
