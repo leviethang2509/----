@@ -34,11 +34,11 @@
                 <div class="letter">
                     <div class="text">
                         <strong>gửi chị pé</strong>
-                        <br>     ----------------------------------------------------
+                        <br>     -------------------------------
                                 Trước khi rời khỏi nhà chị pé nhớ
                                 kt đồ đạc nhóa!! chị pé thi tốt nhee
                             
-                                -------------------may mắn-----------------------
+                                --------------may mắn-----------
                         </p>
                     </div>
                 </div>
