@@ -38,7 +38,7 @@
                                 Trước khi rời khỏi nhà chị pé nhớ
                                 kt đồ đạc nhóa!! chị pé thi tốt nhee
                             
-                                --------------may mắn------
+                                --------------may mắn-----------
                     </div>
                 </div>
             </div>
