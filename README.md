@@ -37,7 +37,6 @@
                         <br>     ----------------------------------------------------
                                 Trước khi rời khỏi nhà chị pé nhớ
                                 kt đồ đạc nhóa!!!
-                                vd:thước,viết,căn cước công dân....
                                 và mang thêm sự tự tin của mình nữa nhe<br></br>
                             
                                 -------------------thi tốt nha-----------------------
